@@ -1,4 +1,5 @@
 # new-here
+
 :star-struck: I'm an Executive Assistant joining the Revenue team.
 :pencil2: I'm willing to learn new things and be a beginner. 
 :dizzy: I'm committed to seeing my Executive succeed! 
